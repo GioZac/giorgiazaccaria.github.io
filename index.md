@@ -1,6 +1,6 @@
 ## Giorgia Zaccaria
-title: Giorgia Zaccaria
-description: [A short description of your site's purpose]
+
+Postdoctoral Researcher
 
 ### Giorgia Zaccaria
 
