@@ -1,4 +1,4 @@
-## Giorgia Zaccaria \\ Postdoctoral Researcher
+## Giorgia Zaccaria \newline Postdoctoral Researcher
 ## Postdoctoral Researcher
 
 ### Giorgia Zaccaria
